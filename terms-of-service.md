@@ -1,6 +1,6 @@
 # Terms of Service
 
-*Last updated April 2025*
+*Last updated April 2026*
 
 ## Acceptance
 
